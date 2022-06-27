@@ -1,1 +1,1 @@
-# rsschool-cv
+https://cotobus.github.io/rsschool-cv/cv
